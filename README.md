@@ -17,7 +17,7 @@ Served as a member of the **Cinematography Department** for the **Silver Oaks Mo
 Participated in the **Vigyanotsav Quiz Competition**, achieving **3rd place** among competing interschool teams, demonstrating analytical reasoning and scientific aptitude.
 
 ## 2025 — Debate League Club
-Represented the school as a **speaker** in the **Debate League Club**, earning recognition as the **Best 1st Speaker** under the **World Schools Debating Championship (WSDC)** format.
+Represented as a **speaker** in the **Debate League Club**, earning recognition as the **Best 1st Speaker** under the **World Schools Debating Championship (WSDC)** format.
 
 ## 2025 — Scrapyard Hyderabad Hackathon
 Participated in the **Scrapyard Hyderabad Hackathon**, collaboratively developing a **software solution** that showcased technical skills, teamwork, and innovative thinking under real-world constraints.
